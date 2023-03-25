@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @anna20ayuba
-- 👀 I’m interested in Product Design 
-- 🌱 I’m currently learning Product Design
+- 👋 Hi, I’m Anna Ayuba
+- 👀 I’m interested in Product management 
+- 🌱 I’m currently a newbie and seeking an intership
 - 💞️ I’m looking to collaborate on projects so as to put my skills into use
 - 📫 How to reach me annakije@gmail.com 
 
